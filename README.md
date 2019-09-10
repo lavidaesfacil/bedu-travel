@@ -13,4 +13,7 @@ de viajes de lal escuela de Bedu en la ciudad de México
 
 - Abrir
 
--
+## Contribuciones 
+
+@lizzie136
+@lavidaesfacil
